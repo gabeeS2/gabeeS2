@@ -6,7 +6,7 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I work, I like women, I watch movies that girls love
 
-🫀​🫀​opa, sou gabriel apesar das brincadeira na bio, sou um pouco disso mesmo e nao gosto de mudar o meu jeito
+🫀​🫀​Opa, sou Gabriel apesar das brincadeira na bio, sou um pouco disso mesmo e nao gosto de mudar o meu jeito
 Mulheres sao vidas e nos homens não somos nada sem elas🫀. 💛​💛​💛
 
 Demais coisa:
@@ -15,8 +15,8 @@ Demais coisa:
 -Trabalho na CB 
 
 -JOGO Valorant​🎮​​🎮​​🎮 
--torço pra LOUD MEMO ​💚​​💚​​💚​
--fio de Deus, da igreja​⛪​⛪​
+-Torço pra LOUD MEMO ​💚​​💚​​💚​
+-Fio de Deus, da igreja​⛪​⛪​
 
-Chico coins e bom e luiza sonza mereceu dms Chico reiiii​👑​👑​👑​👑​
+Chico coins e bom e luiza sonza mereceu dms, Chico reiiii​👑​👑​👑​👑​
 Fã do NJR E POKAS🥶​
